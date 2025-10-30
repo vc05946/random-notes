@@ -5,3 +5,8 @@
 
 #### 芝加哥大学学术写作
 （https://www.youtube.com/watch?v=LdWvaE7iPD8）
+
+
+# 地政
+#### ロシアのウクライナ侵攻
+（https://news.yahoo.co.jp/pages/20220217a#a_nuc）
