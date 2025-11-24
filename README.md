@@ -10,3 +10,8 @@
 # 地政
 #### ロシアのウクライナ侵攻
 （https://news.yahoo.co.jp/pages/20220217a#a_nuc）
+
+
+# Foucault
+『言葉と物』における古典主義時代の四辺形の成立
+https://www.gcoe.lit.nagoya-u.ac.jp/eng/result/pdf/6-1_%E9%87%8D%E8%A6%8B.pdf
