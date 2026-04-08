@@ -16,6 +16,13 @@
 『言葉と物』における古典主義時代の四辺形の成立
 https://www.gcoe.lit.nagoya-u.ac.jp/eng/result/pdf/6-1_%E9%87%8D%E8%A6%8B.pdf
 
+# Hegel
+Leiter Reports: A Philosophy Blog
+https://leiterreports.com/
+
+Most cited Anglophone books on Hegel according to Google Scholar
+https://leiterreports.com/2026/04/05/most-cited-anglophone-books-on-hegel-according-to-google-scholar/
+
 
 # 学策展
 学策展的时候，导师传授给我们“四大法宝”
