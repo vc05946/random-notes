@@ -1,3 +1,6 @@
+<img width="1080" height="1424" alt="image" src="https://github.com/user-attachments/assets/bc0c6cc6-ebc7-4d73-9a7f-4a08a15a9e56" />
+
+
 # random-notes
 
 ####  友たちより仲間、目的を共有するのが大事　
