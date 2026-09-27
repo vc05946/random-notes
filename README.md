@@ -37,3 +37,6 @@ https://leiterreports.com/2026/04/05/most-cited-anglophone-books-on-hegel-accord
 3.历史脉络（historical context）：策展必须植入具体的历史—社会—政治—文化的结构条件，而不是抽象模型。保证批评和策展有厚度，而非抒情化或概念化。让自己能够“看懂”创作者为什么会有这种心理动因、文化选择或社会条件。
 
 4.情意感知（affective perception）：保持对创作者的共情和对文化体验的敏感。用与创作者及作品之间的情动（affection）补充“结构化分析”的不足。让批评和策展不会丧失文学性/人性化，不会冷酷地把所有东西都转化为权力分析。
+
+#法語
+https://pan.quark.cn/s/25c9f568195e#/list/share/a82e1ef677af4f69a5a62797f740e471
