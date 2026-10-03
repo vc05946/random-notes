@@ -42,3 +42,7 @@ https://www.facebook.com/GoldenSlothAwards
 
 #法語
 https://pan.quark.cn/s/25c9f568195e#/list/share/a82e1ef677af4f69a5a62797f740e471
+
+
+# 日本銀行史
+https://www.boj.or.jp/about/outline/history/hyakunen/data/hyaku1_1_1.pdf
